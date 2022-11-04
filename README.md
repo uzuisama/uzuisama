@@ -8,6 +8,8 @@
 uzuisama/uzuisama is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+consciencia negra
+
 O dia da consciência negra permite ao ser humano compreender aspectos do racismo e do esforço de uma parte da população contra o preconceito que ainda permeia a sociedade. As comemorações acontecem dia 20 de novembro, em referência à data da morte de Zumbi dos Palmares — grande guerreiro que lutou contra a escravização de seu povo. Então, continue a leitura e aprenda sobre o legado deixado por Zumbi e como isso se reflete na atualidade.
 
 Como surgiu o dia da consciência negra?
