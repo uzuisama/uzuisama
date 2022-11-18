@@ -20,4 +20,5 @@ O dia escolhido homenageia Zumbi, que foi líder do grande quilombo de Palmares.
 Depois de morto Zumbi foi decapitado e sua cabeça foi exposta em praça pública no Pátio do Carmo. Apesar da luta do líder do quilombo, a abolição da escravatura aconteceu somente em 13 de maio de 1888, quando a Princesa Isabel assinou a lei Áurea.
 
 O dia nacional da consciência negra foi instituído para ser celebrado nas escolas pelo projeto de lei nº10.639/2003, no governo Lula. Porém, somente e 2011, a presidenta Dilma Roussef sancionou a lei 12.519/2011, que oficializou a data, mas sem a determinação de um feriado
+ 
  ![consciencianegra](https://user-images.githubusercontent.com/113721030/200056470-00569e1d-66d2-4483-b074-3942944f5428.jpg)
